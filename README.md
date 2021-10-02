@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @lynnbok
-- 👀 I’m interested in exploring ways myself & connect with others
-- 🌱 I’m currently learning how to meet more artists
+- 👀 I’m interested in making art
+- 🌱 I’m currently learning ....
 - 💞️ I’m looking to collaborate
 - 📫 How to reach me on twitter Lynn Sherman @lynnbok
 
